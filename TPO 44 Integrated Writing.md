@@ -1,6 +1,6 @@
 # TPO 44 Integrated Writing
 
-> 2018/10/08 (385 words, 31 mins)
+> 2018/10/08 (398 words, 31 mins)
 
 Both the reading passage and the lecture discuss about whether the silver coins discovered in the North America brought by the European explorers such as the Norse. The reading passage implies that the coins were by no means brought by the Europeans, and mentions three supporting examples. However, the lecturer strongly disagrees with such points of view, and provided three refutations to counter those examples in the reading passage.
 
@@ -10,4 +10,4 @@ Next, the passage suggests that there is no other coin found in the Norse settle
 
 Last but not least, the article claims that the silver coins were not used as currency by the Native Americans, and the Norse, experiences explorers, must have already known the fact. However, the lecturer doubted this claim because the silver coins are beautiful and interesting to the Native Americans, and they can make jewelry or accessories with the coins. Due to their interest, the Europeans can trade something valuable with the Americans by the silver coins. Accordingly, despite the coins are not used as currency, they can still be tradable goods and gives the Norse motivation to bring the coins to the North America.
 
-To sum up, the professor argues against the claims in the article by providing refutations one by one. That is to say, he believes that the silver coin is still a genuine historical evidence of such era.
+To sum up, the professor argues against the claims in the article by providing refutations one by one. That is to say, he believes that the silver coin is still a genuine historical evidence of such era, and it can still be brought to the North America by the Europeans.
